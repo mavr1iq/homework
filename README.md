@@ -10,4 +10,3 @@
 
 
 ![](https://media.tenor.com/rf2vPQpJJYYAAAAC/cat-spin-3d-cat.gif)
-([#1])
